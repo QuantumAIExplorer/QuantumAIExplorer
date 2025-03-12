@@ -1,4 +1,4 @@
-- ### Hi there, I'm [Your Name] 👋  
+- ### Hi there, I'm N.Shrithan 👋  
 
 🚀 **AI Developer | Quantum Computing Enthusiast | AI in Space**  
 
